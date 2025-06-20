@@ -4,4 +4,6 @@
 # 胸肌训练
   * [「胸肌训练终极拆解！」最强 vs 最坑动作全公开，90%的人练错了](https://www.youtube.com/watch?v=2GBx0D9oWng)
 # 腹肌训练
-  * [最强vs最坑」腹肌训练全揭秘！90%健身党都在白练](https://www.youtube.com/watch?v=M3fp3A2Q9To) 
+  * [最强vs最坑」腹肌训练全揭秘！90%健身党都在白练](https://www.youtube.com/watch?v=M3fp3A2Q9To)
+# 背部训练
+  * [背部训练全拆解！最强vs最坑动作大揭秘，90%健身党都练错了](https://www.youtube.com/watch?v=ubaRMTlLBjY) 
