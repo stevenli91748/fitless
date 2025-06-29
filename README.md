@@ -1,6 +1,7 @@
 # fitless
 # 减脂食谱
   * [李不理理(减脂版](https://www.youtube.com/@FabrizioFeudo/shorts)
+  * [糖尿病最好吃健康的食物，8種糖尿病要吃的降糖增肌食物](https://www.youtube.com/watch?v=6Xx-tKgTXlo)
 # 热身训练
   * [当你的热身比训练还炫酷 这个组合技能超级炫酷训练前做一两组，再开始正式训练](https://www.youtube.com/shorts/gV4e06v3blU)
 # 健身房最佳上肢锻炼方式
