@@ -10,6 +10,7 @@
 # 胸肌训练
   * [「胸肌训练终极拆解！」最强 vs 最坑动作全公开，90%的人练错了](https://www.youtube.com/watch?v=2GBx0D9oWng)
 # 腹肌训练
+  * [修炼八块腹肌，仅仅卷腹就够了吗？最完整的腹肌训练计划书](https://www.youtube.com/watch?v=-16y1KVm7aE)
   * [最强vs最坑」腹肌训练全揭秘！90%健身党都在白练](https://www.youtube.com/watch?v=M3fp3A2Q9To)、
   * [你是否不信60天出腹肌？因為你還在做「最差動作」！最佳組合+排行大公開！](https://www.youtube.com/watch?v=RD9BvylV3-U)
 # 背部训练
