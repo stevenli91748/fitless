@@ -1,5 +1,6 @@
 # fitless
 # 减脂食谱
+  * [减脂食谱](https://www.youtube.com/shorts/zATT91mtQHw) 
   * [李不理理(减脂版](https://www.youtube.com/@FabrizioFeudo/shorts)
   * [糖尿病最好吃健康的食物，8種糖尿病要吃的降糖增肌食物](https://www.youtube.com/watch?v=6Xx-tKgTXlo)
   * [无痛减脂!】如何快速准备1周的健康餐！(含详细食谱)](https://www.youtube.com/watch?v=QtP4zQjPsDQ)
