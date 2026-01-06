@@ -1,4 +1,5 @@
 # fitless
+# [健身房器械标准动作教学](https://www.youtube.com/@BorrayoJasmine/shorts)
 # 减脂食谱
   * [减脂食谱](https://www.youtube.com/shorts/zATT91mtQHw) 
   * [李不理理(减脂版](https://www.youtube.com/@FabrizioFeudo/shorts)
