@@ -4,7 +4,8 @@
 # 减脂
   * [別再亂減脂了！全網最完整的減脂教學來了](https://www.youtube.com/watch?v=xZMorc9i3KY)
   * [我练了2年，还是“脂包肌”。直到我停止做“这1件事](https://www.youtube.com/watch?v=x5O6CVYdVV0)
-  * 减脂食谱 
+  * 减脂食谱
+    * [倪海廈講中醫](https://www.youtube.com/@xuanquach6555/shorts)  
     * [越吃越瘦？15种“几乎零卡”的食物清单，减肥嘴馋党的救星！](https://www.youtube.com/watch?v=rFX8QUyE3bE)
     * [减脂食谱](https://www.youtube.com/shorts/zATT91mtQHw) 
     * [李不理理(减脂版](https://www.youtube.com/@FabrizioFeudo/shorts)
