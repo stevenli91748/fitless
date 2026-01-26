@@ -1,6 +1,6 @@
 # fitless
 # [健身房器械标准动作教学](https://www.youtube.com/@BorrayoJasmine/shorts)
-# [Wenyao文耀身房](https://www.youtube.com/@wenyao_522/videos)
+# [Wenyao文耀健身房](https://www.youtube.com/@wenyao_522/videos)
 # 减脂
   * [別再亂減脂了！全網最完整的減脂教學來了](https://www.youtube.com/watch?v=xZMorc9i3KY)
   * [我练了2年，还是“脂包肌”。直到我停止做“这1件事](https://www.youtube.com/watch?v=x5O6CVYdVV0)
