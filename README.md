@@ -1,6 +1,7 @@
 # fitless
 # [健身房器械标准动作教学](https://www.youtube.com/@BorrayoJasmine/shorts)
-# [Wenyao文耀健身房](https://www.youtube.com/@wenyao_522/videos)
+# [Wenyao文耀健身房 good  ](https://www.youtube.com/@wenyao_522/videos)
+# [身体升级---老外健身房 good](https://www.youtube.com/@BodyUpLab/shorts)
 # [Lodini Rokumu健身房](https://www.youtube.com/@LodiniRokumu/shorts)
 
 # 减脂
