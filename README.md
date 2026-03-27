@@ -16,6 +16,7 @@
     * [无痛减脂!】如何快速准备1周的健康餐！(含详细食谱)](https://www.youtube.com/watch?v=QtP4zQjPsDQ)
 # 健身计划
   * [新手一周训练计划](https://www.youtube.com/shorts/fpsWCpxCiG4)
+  * [完美的初學者訓練計劃 新手訓練計劃 如何开始健身---身体升级](https://www.youtube.com/watch?v=_30oVV7AD9g&list=PLz-QvfgYXCAt2IoeyJrDS-311di1EgMZe)
 # 热身训练
   * [当你的热身比训练还炫酷 这个组合技能超级炫酷训练前做一两组，再开始正式训练](https://www.youtube.com/shorts/gV4e06v3blU)
 # 健身房最佳上肢锻炼方式
