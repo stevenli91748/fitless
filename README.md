@@ -18,6 +18,7 @@
   * [健身房最佳上肢锻炼方式](https://www.youtube.com/watch?v=rDn3di1Roc4) 
 # 胸肌训练
   * [「胸肌训练终极拆解！」最强 vs 最坑动作全公开，90%的人练错了](https://www.youtube.com/watch?v=2GBx0D9oWng)
+  * [练胸前 热身](https://www.youtube.com/shorts/2PnSxATrg1M)
 # 腹肌训练
   * [修炼八块腹肌，仅仅卷腹就够了吗？最完整的腹肌训练计划书](https://www.youtube.com/watch?v=-16y1KVm7aE)
   * [最强vs最坑」腹肌训练全揭秘！90%健身党都在白练](https://www.youtube.com/watch?v=M3fp3A2Q9To)、
