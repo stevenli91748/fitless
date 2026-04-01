@@ -14,18 +14,26 @@
     * [李不理理(减脂版](https://www.youtube.com/@FabrizioFeudo/shorts)
     * [糖尿病最好吃健康的食物，8種糖尿病要吃的降糖增肌食物](https://www.youtube.com/watch?v=6Xx-tKgTXlo)
     * [无痛减脂!】如何快速准备1周的健康餐！(含详细食谱)](https://www.youtube.com/watch?v=QtP4zQjPsDQ)
-# 健身计划
+# 健身计划---顺序不对，效果减半
   * [新手一周训练计划](https://www.youtube.com/shorts/fpsWCpxCiG4)
   * [完美的初學者訓練計劃 新手訓練計劃 如何开始健身---身体升级](https://www.youtube.com/watch?v=_30oVV7AD9g&list=PLz-QvfgYXCAt2IoeyJrDS-311di1EgMZe)
-# 热身训练
-  * [当你的热身比训练还炫酷 这个组合技能超级炫酷训练前做一两组，再开始正式训练](https://www.youtube.com/shorts/gV4e06v3blU)
+## 热身训练
+   * [当你的热身比训练还炫酷 这个组合技能超级炫酷训练前做一两组，再开始正式训练](https://www.youtube.com/shorts/gV4e06v3blU)
+## 周一 胸肌训练
+   * [练胸前 热身](https://www.youtube.com/shorts/2PnSxATrg1M)
+   * [「胸肌训练终极拆解！」最强 vs 最坑动作全公开，90%的人练错了](https://www.youtube.com/watch?v=2GBx0D9oWng)
+     * 平板哑铃卧推---提高胸部整体维度
+     * 上斜卧推 ---增加上胸饱满度
+     * 平板哑铃飞鸟---增加胸部宽度
+     * 杠铃片卧推---锻练胸中缝
+     * 蝴蝶机夹胸---收尾整个胸部
+   
+
+
 # 健身房最佳上肢锻炼方式
   * [健身房最佳上肢锻炼方式](https://www.youtube.com/watch?v=rDn3di1Roc4)
   * 肩锻炼
   * 臂锻炼
-# 胸肌训练
-  * [「胸肌训练终极拆解！」最强 vs 最坑动作全公开，90%的人练错了](https://www.youtube.com/watch?v=2GBx0D9oWng)
-  * [练胸前 热身](https://www.youtube.com/shorts/2PnSxATrg1M)
 # 腹肌训练
   * [修炼八块腹肌，仅仅卷腹就够了吗？最完整的腹肌训练计划书](https://www.youtube.com/watch?v=-16y1KVm7aE)
   * [最强vs最坑」腹肌训练全揭秘！90%健身党都在白练](https://www.youtube.com/watch?v=M3fp3A2Q9To)、
