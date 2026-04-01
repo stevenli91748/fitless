@@ -29,12 +29,14 @@
      * 蝴蝶机夹胸---收尾整个胸部
 
 ## 周二 背部训练---  12次/组 4组  组间休息2分钟
+   * [背部训练全拆解！最强vs最坑动作大揭秘，90%健身党都练错了](https://www.youtube.com/watch?v=ubaRMTlLBjY) 
    * 高位下拉---加强背部宽度
    * 坐姿划船--- 加强背部厚度
    * 单臂哑铃划船---训练背部两侧
    * 坐姿硬拉外旋---训练整个背部
 
 ## 周四 肩部训练--- 12次/组 4组  组间休息2分钟
+   * [健身房最佳上肢锻炼方式](https://www.youtube.com/watch?v=rDn3di1Roc4)
    * 哑铃推肩---强化肩前束
    * 哑铃侧平举---强化肩中束，增加肩板宽度
    * 单臂哑铃提拉---强化肩后束，增加力量和维度
@@ -48,18 +50,19 @@
    * 绳索臂屈伸----锻练三头肌外侧，强化手臂外侧线条
    
 ## 周日 腿和腹部训练
-  * 
+  * 腿部训练
+  * 腹部训练
+    * [修炼八块腹肌，仅仅卷腹就够了吗？最完整的腹肌训练计划书](https://www.youtube.com/watch?v=-16y1KVm7aE)
+    * [最强vs最坑」腹肌训练全揭秘！90%健身党都在白练](https://www.youtube.com/watch?v=M3fp3A2Q9To)、
+    * [你是否不信60天出腹肌？因為你還在做「最差動作」！最佳組合+排行大公開！](https://www.youtube.com/watch?v=RD9BvylV3-U)
 
 
 
 
 # 健身房最佳上肢锻炼方式
-  * [健身房最佳上肢锻炼方式](https://www.youtube.com/watch?v=rDn3di1Roc4)
+
   * 肩锻炼
   * 臂锻炼
-# 腹肌训练
-  * [修炼八块腹肌，仅仅卷腹就够了吗？最完整的腹肌训练计划书](https://www.youtube.com/watch?v=-16y1KVm7aE)
-  * [最强vs最坑」腹肌训练全揭秘！90%健身党都在白练](https://www.youtube.com/watch?v=M3fp3A2Q9To)、
-  * [你是否不信60天出腹肌？因為你還在做「最差動作」！最佳組合+排行大公開！](https://www.youtube.com/watch?v=RD9BvylV3-U)
-# 背部训练
-  * [背部训练全拆解！最强vs最坑动作大揭秘，90%健身党都练错了](https://www.youtube.com/watch?v=ubaRMTlLBjY) 
+
+
+
