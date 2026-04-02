@@ -22,6 +22,7 @@
 ## 周一 胸肌训练--- 12次/组 4组  组间休息2分钟
    * [练胸前 热身](https://www.youtube.com/shorts/2PnSxATrg1M)
    * [「胸肌训练终极拆解！」最强 vs 最坑动作全公开，90%的人练错了](https://www.youtube.com/watch?v=2GBx0D9oWng)
+   * [做对胸部训练的顺序、效率会翻倍的](https://www.youtube.com/shorts/nyvX-roFgOY)
      * 平板哑铃卧推---提高胸部整体维度
      * 上斜卧推 ---增加上胸饱满度
      * 平板哑铃飞鸟---增加胸部宽度
