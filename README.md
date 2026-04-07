@@ -21,14 +21,15 @@
    * [当你的热身比训练还炫酷 这个组合技能超级炫酷训练前做一两组，再开始正式训练](https://www.youtube.com/shorts/gV4e06v3blU)
 ## 周一 胸肌训练--- 12次/组 4组  组间休息2分钟
    * [练胸前 热身](https://www.youtube.com/shorts/2PnSxATrg1M)
+   * [终极胸肌圣经】这可能是全网最详细的胸肌增长计划！(从平胸到D罩杯的完整攻略 | 全程干货)](https://www.youtube.com/watch?v=iSDx1e5U9yM)
    * [「胸肌训练终极拆解！」最强 vs 最坑动作全公开，90%的人练错了](https://www.youtube.com/watch?v=2GBx0D9oWng)
    * [做对胸部训练的顺序、效率会翻倍的](https://www.youtube.com/shorts/nyvX-roFgOY)
-     * 第一步 平板哑铃卧推 or 上斜哑铃卧推 or 平板杠铃卧推 or 上斜杠铃卧推 ---发展中，下胸，提高胸部整体维度
+     * 第一步 [平板哑铃卧推](https://www.youtube.com/shorts/O5wqjEtoSdU) or [上斜哑铃卧推](https://www.youtube.com/shorts/4Lh6SChelYU) or [平板杠铃卧推](https://www.youtube.com/shorts/qfPCvpkFHCI) or 上斜杠铃卧推 ---发展中，下胸，提高胸部整体维度
      * 第二步 平板哑铃飞鸟  ---增加胸部宽度，动作的重点是： 下落离心，要充分感受胸大肌的拉伸
      * 第三步 史密斯平板或上斜卧推 or 哑铃反向卧推 ---发展上胸饱满度
      * 第三步 绳索夹胸---锻练上，中，下胸中缝
-     * 第四步 双杠臂屈伸---可给下胸强烈的拉伸效果
-     * 第五步 蝴蝶机夹胸---收尾整个胸部 
+     * [第四步 双杠臂屈伸---可给下胸强烈的拉伸效果](https://www.youtube.com/shorts/-XVZZKhKrmE)
+     * [第五步 蝴蝶机夹胸---收尾整个胸部 ](https://www.youtube.com/shorts/68nEDR-UtXk)
      * 伏卧撑
 
      
