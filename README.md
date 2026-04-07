@@ -23,6 +23,7 @@
    * [练胸前 热身](https://www.youtube.com/shorts/2PnSxATrg1M)
    * [终极胸肌圣经】这可能是全网最详细的胸肌增长计划！(从平胸到D罩杯的完整攻略 | 全程干货)](https://www.youtube.com/watch?v=iSDx1e5U9yM)
    * [「胸肌训练终极拆解！」最强 vs 最坑动作全公开，90%的人练错了](https://www.youtube.com/watch?v=2GBx0D9oWng)
+   * [最好的胸肌动作 VS 最烂的胸肌动作](https://www.youtube.com/watch?v=o5eQwH48sJY)
    * [做对胸部训练的顺序、效率会翻倍的](https://www.youtube.com/shorts/nyvX-roFgOY)
      * 第一步 [平板哑铃卧推](https://www.youtube.com/shorts/O5wqjEtoSdU) or [上斜哑铃卧推](https://www.youtube.com/shorts/4Lh6SChelYU) or [平板杠铃卧推](https://www.youtube.com/shorts/qfPCvpkFHCI) or 上斜杠铃卧推 ---发展中，下胸，提高胸部整体维度
      * 第二步 平板哑铃飞鸟  ---增加胸部宽度，动作的重点是： 下落离心，要充分感受胸大肌的拉伸
