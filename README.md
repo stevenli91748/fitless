@@ -26,13 +26,13 @@
    * [「胸肌训练终极拆解！」最强 vs 最坑动作全公开，90%的人练错了](https://www.youtube.com/watch?v=2GBx0D9oWng)
    * [最好的胸肌动作 VS 最烂的胸肌动作](https://www.youtube.com/watch?v=o5eQwH48sJY)
    * [做对胸部训练的顺序、效率会翻倍的](https://www.youtube.com/shorts/nyvX-roFgOY)
-     * 第一步 [平板哑铃卧推(中胸)](https://www.youtube.com/shorts/O5wqjEtoSdU) or [上斜哑铃卧推 (上胸)](https://www.youtube.com/shorts/4Lh6SChelYU) or [平板杠铃卧推 (中胸)](https://www.youtube.com/shorts/qfPCvpkFHCI) or 上斜杠铃卧推(上胸) ---发展中，下胸，提高胸部整体维度
-     * 第二步 平板哑铃飞鸟  ---增加胸部宽度，动作的重点是： 下落离心，要充分感受胸大肌的拉伸
-     * 第三步 史密斯平板(中胸)或上斜卧推(上胸) or 哑铃反向卧推 ---发展上胸饱满度，可先用这个替代杠铃卧推 安全动作
-     * 第四步 坐姿绳索夹胸---锻练上，中胸中缝
-     * [第五步 双杠臂屈伸---可给下胸强烈的拉伸效果](https://www.youtube.com/shorts/-XVZZKhKrmE)
-     * 第六步 平板器械胸推---可上大重量 安全动作
-     * 第七步 跪姿绳索交叉下压---最好的下胸动作
+     * 第一步 [平板哑铃卧推(中胸)](https://www.youtube.com/shorts/O5wqjEtoSdU) or [平板杠铃卧推 (中胸)](https://www.youtube.com/shorts/qfPCvpkFHCI) or 史密斯平板(中胸)  or 平板器械胸推(可上大重量 安全动作)---发展中胸
+     * 第二步 水平绳索夹胸(中胸)
+     * 第三步 [上斜哑铃卧推 (上胸)](https://www.youtube.com/shorts/4Lh6SChelYU) or 上斜杠铃卧推(上胸) or 史密斯上斜卧推(上胸)
+     * 第四步  从低到高绳索夹胸(上胸)
+     * [第五步 双杠臂屈伸---可给下胸强烈的拉伸效果,最有效](https://www.youtube.com/shorts/-XVZZKhKrmE)
+     * 第六步  从高到低绳索夹胸(下胸) or 跪姿绳索交叉下压---最好的下胸动作
+     * 第七步 平板哑铃飞鸟  ---增加胸部宽度，动作的重点是： 下落离心，要充分感受胸大肌的拉伸
      * [第八步 蝴蝶机夹胸---收尾整个胸部 ](https://www.youtube.com/shorts/68nEDR-UtXk)
      * 伏卧撑
 
