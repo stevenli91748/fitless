@@ -21,6 +21,7 @@
    * [当你的热身比训练还炫酷 这个组合技能超级炫酷训练前做一两组，再开始正式训练](https://www.youtube.com/shorts/gV4e06v3blU)
 ## 周一 胸肌训练--- 12次/组 4组  组间休息2分钟
    * [练胸前 热身](https://www.youtube.com/shorts/2PnSxATrg1M)
+   * [不知道怎麼練胸嗎？完美的胸部訓練 包含組數和次數 #如何練大胸肌 #胸肌 #胸肌训练](https://www.youtube.com/watch?v=FCE_J04b6as&list=PLz-QvfgYXCAtEueLlPuUztbscPA0-yvHi&index=7)
    * [终极胸肌圣经】这可能是全网最详细的胸肌增长计划！(从平胸到D罩杯的完整攻略 | 全程干货)](https://www.youtube.com/watch?v=iSDx1e5U9yM)
    * [「胸肌训练终极拆解！」最强 vs 最坑动作全公开，90%的人练错了](https://www.youtube.com/watch?v=2GBx0D9oWng)
    * [最好的胸肌动作 VS 最烂的胸肌动作](https://www.youtube.com/watch?v=o5eQwH48sJY)
