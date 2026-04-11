@@ -1,5 +1,6 @@
 # fitless
 # [健身房器械标准动作教学](https://www.youtube.com/@BorrayoJasmine/shorts)
+# [健身房運動排名（從最佳到最差！）一口氣談遍健身房器械動作](https://www.youtube.com/watch?v=zqx8JecM32I)
 # [Wenyao文耀健身房 good  ](https://www.youtube.com/@wenyao_522/videos)
 # [身体升级---老外健身房 good](https://www.youtube.com/@BodyUpLab/shorts)
 # [Lodini Rokumu健身房](https://www.youtube.com/@LodiniRokumu/shorts)
