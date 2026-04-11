@@ -7,6 +7,7 @@
 # 减脂
   * [別再亂減脂了！全網最完整的減脂教學來了](https://www.youtube.com/watch?v=xZMorc9i3KY)
   * [我练了2年，还是“脂包肌”。直到我停止做“这1件事](https://www.youtube.com/watch?v=x5O6CVYdVV0)
+    [我试了10种最火的减脂方法，结果彻底颠覆了我的认知！](https://www.youtube.com/watch?v=WyNrjGkUHE4)
   * 减脂食谱
     * [倪海廈講中醫](https://www.youtube.com/@xuanquach6555/shorts)  
     * [越吃越瘦？15种“几乎零卡”的食物清单，减肥嘴馋党的救星！](https://www.youtube.com/watch?v=rFX8QUyE3bE)
@@ -66,7 +67,10 @@
     * [最强vs最坑」腹肌训练全揭秘！90%健身党都在白练](https://www.youtube.com/watch?v=M3fp3A2Q9To)、
     * [你是否不信60天出腹肌？因為你還在做「最差動作」！最佳組合+排行大公開！](https://www.youtube.com/watch?v=RD9BvylV3-U)
     * [不知道怎麼練腹肌？完美的腹肌訓練 包含組數與次數 如何練出六塊腹肌](https://www.youtube.com/watch?v=BdbHDH02s24&list=PLz-QvfgYXCAtEueLlPuUztbscPA0-yvHi&index=3)
-
+    * 手臂向前的长杠扛的平板支撑 or 腹肌轮
+    * 俄罗斯卷腹---同时训练腹斜肌和腹直肌  新手可将双腿放在地面，老手双腿悬空
+    * 单扛悬挂举腿
+    * 侧支撑抬臀---训练腹斜肌
 
 
 
