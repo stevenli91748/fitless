@@ -70,6 +70,7 @@
     * [最强vs最坑」腹肌训练全揭秘！90%健身党都在白练](https://www.youtube.com/watch?v=M3fp3A2Q9To)、
     * [你是否不信60天出腹肌？因為你還在做「最差動作」！最佳組合+排行大公開！](https://www.youtube.com/watch?v=RD9BvylV3-U)
     * [不知道怎麼練腹肌？完美的腹肌訓練 包含組數與次數 如何練出六塊腹肌](https://www.youtube.com/watch?v=BdbHDH02s24&list=PLz-QvfgYXCAtEueLlPuUztbscPA0-yvHi&index=3)
+    * [完美的腹斜肌訓練 包含組數和次數](https://www.youtube.com/watch?v=qd8pdJtU0rI&list=PLz-QvfgYXCAtEueLlPuUztbscPA0-yvHi&index=3)
     * [出乎意料的腹部腹肌動作排名（從最佳到最差！）](https://www.youtube.com/watch?v=lrUjP_rT5xw)
     * 手臂向前的长杠扛的平板支撑 or 腹肌轮
     * 俄罗斯卷腹---同时训练腹斜肌和腹直肌  新手可将双腿放在地面，老手双腿悬空
