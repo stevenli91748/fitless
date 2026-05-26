@@ -1,5 +1,6 @@
 # fitless
 # https://athleanx.com/   ------ 很好的健身网站
+# [DavidMiao-苗振  David Miao 苗振用 20 多年運動康復與精準訓練經驗 ](https://www.youtube.com/@DavidMiao-%E8%8B%97%E6%8C%AF/shorts)
 # [健身房器械标准动作教学](https://www.youtube.com/@BorrayoJasmine/shorts)
 # [健身房運動排名（從最佳到最差！）一口氣談遍健身房器械動作](https://www.youtube.com/watch?v=zqx8JecM32I)
 # [Wenyao文耀健身房 good  ](https://www.youtube.com/@wenyao_522/videos)
