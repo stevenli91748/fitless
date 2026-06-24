@@ -10,6 +10,7 @@
 # [铁憨憨](https://www.youtube.com/@%E9%93%81%E6%86%A8%E6%86%A8-q4f/featured)
 # 引体向上
   * [3个动作解锁前水平！但陷入这个误区你将白费半年 街健 前水平教学](https://www.youtube.com/watch?v=uW3J26DFoTQ)
+  * [街頭健身靜態動作神技 - 前水平](https://www.youtube.com/watch?v=e5iq-O_j90o)
 # 减脂
   * [別再亂減脂了！全網最完整的減脂教學來了](https://www.youtube.com/watch?v=xZMorc9i3KY)
   * [我练了2年，还是“脂包肌”。直到我停止做“这1件事](https://www.youtube.com/watch?v=x5O6CVYdVV0)
