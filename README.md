@@ -1,5 +1,6 @@
 # fitless
 # https://athleanx.com/   ------ 很好的健身网站
+# [体位健身](https://www.youtube.com/@%E4%BD%93%E4%BD%8D%E5%81%A5%E8%BA%AB/shorts)
 # [健身动作漫画教学](https://www.youtube.com/@alvhinzheng9079/shorts)
 # [DavidMiao-苗振  David Miao 苗振用 20 多年運動康復與精準訓練經驗 ](https://www.youtube.com/@DavidMiao-%E8%8B%97%E6%8C%AF/shorts)
 # [健身房器械标准动作教学](https://www.youtube.com/@BorrayoJasmine/shorts)
