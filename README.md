@@ -73,6 +73,7 @@
   * 腿部训练
     * [不知道怎麼練腿？完美的腿部訓練 包含組數和次數](https://www.youtube.com/watch?v=qkYFkMb0x9M) 
   * 腹部训练
+    * [下腹赘肉死活减不掉？每天10分钟燃脂+虐腹，9步练出撕裂级八块腹肌](https://www.youtube.com/watch?v=F7_xSbX1O4Y) 
     * [修炼八块腹肌，仅仅卷腹就够了吗？最完整的腹肌训练计划书](https://www.youtube.com/watch?v=-16y1KVm7aE)
     * [最强vs最坑」腹肌训练全揭秘！90%健身党都在白练](https://www.youtube.com/watch?v=M3fp3A2Q9To)、
     * [你是否不信60天出腹肌？因為你還在做「最差動作」！最佳組合+排行大公開！](https://www.youtube.com/watch?v=RD9BvylV3-U)
