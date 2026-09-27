@@ -9,6 +9,9 @@
 # [身体升级---老外健身房 good](https://www.youtube.com/@BodyUpLab/shorts)
 # [Lodini Rokumu健身房](https://www.youtube.com/@LodiniRokumu/shorts)
 # [铁憨憨](https://www.youtube.com/@%E9%93%81%E6%86%A8%E6%86%A8-q4f/featured)
+
+# 
+ * [拒絕高價包裝溢價！Costco這6款最便宜的“基礎原料”，才是逆轉腦霧與修復血管壁的天然王牌！](https://www.youtube.com/watch?v=GXMOWpv22x8)
 # 引体向上
   * [3个动作解锁前水平！但陷入这个误区你将白费半年 街健 前水平教学](https://www.youtube.com/watch?v=uW3J26DFoTQ)
   * [街頭健身靜態動作神技 - 前水平](https://www.youtube.com/watch?v=e5iq-O_j90o)
