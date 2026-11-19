@@ -70,6 +70,7 @@
    * 坐姿硬拉外旋---训练整个背部
 
 ## 周四 肩部训练--- 12次/组 4组  组间休息2分钟
+   * [肩部訓練最佳組合訓練方式，全面提升肩部飽滿度](https://www.youtube.com/shorts/LW_QQfKfRYo)
    * [健身房最佳上肢锻炼方式](https://www.youtube.com/watch?v=rDn3di1Roc4)
    * 哑铃推肩---强化肩前束
    * 哑铃侧平举---强化肩中束，增加肩板宽度
