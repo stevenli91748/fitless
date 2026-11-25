@@ -63,6 +63,7 @@
      
 
 ## 周二 背部训练---  12次/组 4组  组间休息2分钟
+   * [背部练习 #快速瘦](https://www.youtube.com/shorts/5oSnyLpaViQ)
    * [從扁平背到倒三角，我只練這3個動作](https://www.youtube.com/watch?v=dKVcpYWe1U4)
    * [背部训练全拆解！最强vs最坑动作大揭秘，90%健身党都练错了](https://www.youtube.com/watch?v=ubaRMTlLBjY) 
    * 高位下拉---加强背部宽度
